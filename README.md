@@ -1,6 +1,6 @@
 # ⛪ Deepening Growth in Committed Churches through Enhanced Congregational Practical Theological Interpretation
 
-**Organization:** Open Hearts Training Center (OHTC) — Cap-Haitian, Haiti
+**Organization:** Open Hearts Training Center (OHTC) - Cap-Haitian, Haiti
 
 > Equipping 300 congregational leaders across northern and central Haiti with practical theological tools to strengthen church ministry and spiritual growth.
 
